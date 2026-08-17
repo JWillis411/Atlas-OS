@@ -1,0 +1,2 @@
+Atlas Constitution
+The Constitution defines the principles that guide every decision within the Atlas ecosystem. Core Principles. Transformation before transaction. Learning before selling. Documentation before duplication. Systems before scale. Contribution before recognition. Legacy before completion. Guiding standard. Every decision should strengthen the Atlas and help people navigate life with greater clarity, purpose, and intention.
